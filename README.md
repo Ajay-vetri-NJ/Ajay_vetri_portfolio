@@ -1,6 +1,6 @@
 ------------------------------------------------
 
-Customize as per your wish simple steps
+Customize as per your wish with simple steps.
 
 ------------------------------------------------
 
